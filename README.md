@@ -2,7 +2,7 @@
 
 #### I'm Bin Liang, currently a software engineer at MS.
 
-Here are some ideas to get you started:
+About me:
 
 - 🔭 I’m currently working on MS.
 - 🤙🏾 Computer Graphic Lover❤️.
