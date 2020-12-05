@@ -8,9 +8,9 @@ Here are some ideas to get you started:
 - 🤙🏾 Computer Graphic Lover❤️.
 - 🌱 I’m learning UE4 and Houdini for my interests. Blender is out of time for me.
 - 👯 Worked on some about Deep Learning and Self-Supervised Learning at Peking Univesity。
-- 💬 Ask me send me [email](millerliang97@gmai.com)
+- 💬 send me [email](millerliang97@gmai.com)
 
-Same as U and Nothing special.
+##### Same as U and Nothing special.
 
 Love Life / Sports / Independent some day
 
