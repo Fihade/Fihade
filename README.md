@@ -10,7 +10,7 @@ About me:
 - 👯 Worked on some about Deep Learning and Self-Supervised Learning at Peking Univesity。
 - 💬 send me [email](millerliang97@gmail.com)
 
-##### Same as you and Nothing special.
+
 
 Love Life / Sports / Independent some day
 
